@@ -1,0 +1,2 @@
+Život nám připravuje různá překvapení a někdy oním překvapením jsou překážky, které překonáváme. To je podstatou života jako takového.  
+Pokud máme pocit, že se nám překážky stále opakují (jsou to podobné překážky stále dokola), tak to s největší pravděpodobností znamená to, že jsme danou situaci nevyřešili správně a dokud se s ní nedokážeme v životě správně "poprat", bude nám jí život stále předhazovat.
